@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @OliviaSuzuki
+- 👀 I’m interested in coding
+- 🌱 I’m currently searching how to start to learn it
